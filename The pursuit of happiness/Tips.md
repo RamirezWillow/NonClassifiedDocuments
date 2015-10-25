@@ -9,3 +9,4 @@ Tips
 X number of calls equals X number of prospects.<br/>
 X number of prospects equals X number of customers.<br/>
 X number of customers equals X number of dollars.<br/>
+* 

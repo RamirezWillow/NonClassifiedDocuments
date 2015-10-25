@@ -2,7 +2,7 @@
 Tips
 ===
 
-
+[doc]
 
 * Maybe happiness is something that we can only pursue and actuallly never have it.
 * It's simple.<br/>

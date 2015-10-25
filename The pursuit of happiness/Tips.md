@@ -1,6 +1,4 @@
-===
 <font color=Blue size=12>Tips</font>
-===
 
 
 

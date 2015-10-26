@@ -3,9 +3,9 @@
 ===
 
 
-I don't know what that dream is that you have.
-I don't care how disappointing it might've been as you've been working toward that dream,
-but that dream that you're holding in your mind,
+I don't know what that dream is that you have.  
+I don't care how disappointing it might've been as you've been working toward that dream,  
+but that dream that you're holding in your mind,  
 That it's possible!
 That some of you already know.
 That it's hard,
